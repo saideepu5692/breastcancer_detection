@@ -44,5 +44,3 @@ https://user-images.githubusercontent.com/77832407/215329706-5290af09-dc39-4099-
 
 
 
-
-<sub><sup>Priyansh Sharma</sup></sub>
